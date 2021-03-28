@@ -1,4 +1,4 @@
-👋 Hi, I’m @santosjkm
+👋 Hi, I’m @santosjk
 
 - 👀 I’m interested in learning cybersecurity
 
